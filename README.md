@@ -44,7 +44,7 @@ To improve sales, Nova Store should focus on women customers aged 30–49 years 
 
 
 ## Author
-Sheikh Ayaan
+Sheikh Abdul Ayaan
 
 
 
